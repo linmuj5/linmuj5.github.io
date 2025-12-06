@@ -1,4 +1,4 @@
-# [linmuj5.github.io](https://hoo.be/huangwu)
+# [linmuj5.github.io](https://hlwmr.gitbook.io/hlwmr-docs/)
 
 1.[91看剧网 ](https://www.91kan.my)- 海量高清影视的线上乐园
 网址： https://www.91kan.my
